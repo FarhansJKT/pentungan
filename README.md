@@ -1,2 +1,1 @@
-# pentungan
-games memukhul kawans free alpha v 1
+Cooming soon
